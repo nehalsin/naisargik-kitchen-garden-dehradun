@@ -48,10 +48,9 @@
 - Climber bearing flowers and fruits. 
 - First Ridged Gourd plucked on 2021-09-24. 
 
+## Recent photos 
 
-Some recent photos are as follows - 
-
-## 2021-09-23
+### 2021-09-23
 
 ![1](1.jpg)
 
@@ -65,7 +64,7 @@ Some recent photos are as follows -
 
 ![6](6.jpg)
 
-## 2021-09-24
+### 2021-09-24
 
 Freshly plucked at 12:30 PM. 
 
