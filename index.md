@@ -1,5 +1,7 @@
 # Nehal Wild Kitchen Garden, India 
 
+![turaicollage2021-09-28](turaicollage2021-09-28.jpg)
+
 - Experiment and experience of magical nature with seed dispersal. 
 - Papaya, Mango and now Ridged Gourd (tauri/turai) climber. 
 - Plant/trees naturally and spontaneously growing with only seed dispersal and least/no disturbing mother nature at work. 
@@ -72,6 +74,6 @@ Freshly plucked at 12:30 PM.
 
 ![20210924_123107](20210924_123107.jpg)
 
-### 2021-09-28
 
-![turaicollage2021-09-28](turaicollage2021-09-28.jpg)
+
+
