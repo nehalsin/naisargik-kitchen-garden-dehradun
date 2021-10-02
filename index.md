@@ -1,4 +1,4 @@
-# Nehal Wild Kitchen Garden, India 
+# Naisargik Kitchen Garden, Dehradun
 
 ![turaicollage2021-09-28](turaicollage2021-09-28.jpg)
 
