@@ -1,9 +1,9 @@
 # Naisargik Kitchen Garden, Dehradun
 
-![turaicollage2021-09-28](turaicollage2021-09-28.jpg)
+![pumpkincollage2021-09-28](pumpkincollage2021-09-28.jpg)
 
 - Experiment and experience of magical nature with seed dispersal. 
-- Papaya, Mango and now Ridged Gourd (tauri/turai) climber. 
+- Papaya, Mango and now Pumpkin (tauri/turai) climber. 
 - Plant/trees naturally and spontaneously growing with only seed dispersal and least/no disturbing mother nature at work. 
 - Seeds thrown of fruits/ vegetables brought from market for consumption.
 -  No seeds bought for sowing. 
@@ -43,12 +43,12 @@
 - 2 growing properly with space for growing. 
 - General statement always made that nothing will come. Mother nature's magic never fails to mesmerize. 
 
-### Ridged Gourd
+### Pumpkin
 
 **Time duration:** 4-6 months approximately
 
 - Climber bearing flowers and fruits. 
-- First Ridged Gourd plucked on 2021-09-24. 
+- First Pumpkin plucked on 2021-09-24. 
 
 ## Recent photos 
 
