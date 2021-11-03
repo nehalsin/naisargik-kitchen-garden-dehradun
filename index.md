@@ -1,4 +1,4 @@
-# Naisargik Kitchen Garden, Dehradun
+# Naisargik Kitchen Garden, Uttarakhand
 
 ![pumpkincollage2021-09-28](pumpkincollage2021-09-28.jpg)
 
