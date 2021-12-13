@@ -3,7 +3,7 @@
 ![pumpkincollage2021-09-28](pumpkincollage2021-09-28.jpg)
 
 - Experiment and experience of magical nature with seed dispersal. 
-- Papaya, Mango and now Pumpkin (tauri/turai) climber. 
+- Papaya, Mango and now Pumpkin climber. 
 - Plant/trees naturally and spontaneously growing with only seed dispersal and least/no disturbing mother nature at work. 
 - Seeds thrown of fruits/ vegetables brought from market for consumption.
 -  No seeds bought for sowing. 
